@@ -119,3 +119,11 @@ Robert Oliveira
 Desenvolvedor Frontend | Java | Web | Python | IoT
 📧 Email: robertdoliveira23@gmail.com
 🔗 LinkedIn: https://www.linkedin.com/in/robertoliveira2301
+
+![WhatsApp Image 2025-08-05 at 15 37 05](https://github.com/user-attachments/assets/9360757d-73ca-4454-9595-13553baf7285)
+
+![WhatsApp Image 2025-08-05 at 15 37 16](https://github.com/user-attachments/assets/bffada34-1944-4fb6-a665-4c6ca1aac93d)
+
+![WhatsApp Image 2025-08-05 at 15 37 33](https://github.com/user-attachments/assets/0b30fed5-154b-4e83-84a2-f16c8b2e2199)
+
+
